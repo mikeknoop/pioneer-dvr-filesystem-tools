@@ -1,1 +1,1 @@
-Please see http://knoopgroup.com/blog/pioneer-dvr-harddrive-recovery-tools/ for details about these tools.
+Please see http://mikeknoop.com/pioneer-dvr-harddrive-recovery-tools/ for details about these tools.
